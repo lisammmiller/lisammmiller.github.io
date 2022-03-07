@@ -29,11 +29,11 @@ I am a PhD Candidate in Germany. My research interests including feminism studie
 
 I obtained first master’s degree in International Journalism at HKBU, Hong Kong. I reported issues focus on gender equality and minority groups such as LGBTQ communities. I also worked as an intern host and reporter in Radio Television Hong Kong(RTHK).
 
-Before that, I finished my bachelor’s study in journalism at Shenzhen University. I also worked as an intern journalist at Southern Metropolis Daily, an influential newspaper in mainland China.
+Before that, I finished my bachelor’s study in journalism at Shenzhen University. I also worked as an intern journalist at Southern Metropolis Daily.
 
-I love traveling and experiencing different cultures. I have studied in Taiwan as an exchange student there. And I have been to Thailand, Indonesia, and Europe. I feel appreciated in every journey since I can explore the world and gain insight. I want to be not only a good listener but also a good journalist and write down all of the stories that happened on the journey.
+I love traveling and experiencing different cultures. I have studied in Taiwan as an exchange student there. And I have been to Thailand, Indonesia, and Europe. I feel appreciated in every journey since I can explore the world and gain new insights. 
 
-If you want to know more about me, you can contact me by email, lisamm3379@gmail.com.
+You can reach me via email, lisamm3379@gmail.com.
 
 ---
 
