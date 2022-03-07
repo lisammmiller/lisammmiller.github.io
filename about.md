@@ -35,5 +35,6 @@ I love traveling and experiencing different cultures. I have studied in Taiwan a
 
 If you want to know more about me, you can contact me by email, lisamm3379@gmail.com.
 
+---
 
 
