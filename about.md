@@ -25,13 +25,13 @@ titles:
   # @end locale config
 key: page-about
 ---
-I am a PhD Candidate in Germany. My research interests including feminism studies, gender equality, health communication, social media research, media culture, and computational communication research.
+I am a Ph.D. student in Germany. My current research project focus is social media research, health communication, and computational communication research. I am also interested in media culture, feminism studies, and gender equality.
 
-I obtained first master’s degree in International Journalism at HKBU, Hong Kong. I reported issues focus on gender equality and minority groups such as LGBTQ communities. I also worked as an intern host and reporter in Radio Television Hong Kong(RTHK).Before that, I finished my bachelor’s study in journalism at Shenzhen University. I also worked as an intern journalist at Southern Metropolis Daily.
+I obtained my first master’s degree in International Journalism at HKBU, Hong Kong. I reported issues focus on gender equality and minority groups such as LGBTQ communities. Furthermore, I also worked as an intern host and reporter at Radio Television Hong Kong (RTHK).
 
-I love traveling and experiencing different cultures. I have studied in Taiwan as an exchange student there. And I have been to Thailand, Indonesia, and Europe. I feel appreciated in every journey since I can explore the world and gain new insights. 
+Before that, I finished my bachelor’s study in journalism at Shenzhen University. I also worked as an intern journalist at Southern Metropolis Daily.
 
-You can reach me via email, lisamm3379@gmail.com.
+You can contact me via email: lisamm3379@gmail.com.
 
 ---
 
